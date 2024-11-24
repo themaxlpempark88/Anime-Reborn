@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/76de71e8-481b-48b8-b7ac-0da687aeef93)
 
-# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4fHvJAz)***
+# ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3ZmBEFM)***
 
 
 ![maxresdefault](https://github.com/user-attachments/assets/d51d71bc-4a61-478b-b5b2-1061377127ab)
